@@ -1,3 +1,5 @@
+## NLP researcher 꿈나무🌳
+
 - 👋 Hi, I’m 문진현 
 
 - 🌱 I’m currently learning ...
